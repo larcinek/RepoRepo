@@ -1,1 +1,1 @@
-Moje pierwsze repo!
+je pierwsze repo!
